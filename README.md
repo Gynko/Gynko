@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on learning back-end magic<br>👯 I’m looking to collaborate on any project with a cool team<br>🤝 I’m looking for help with finding a great path to learn AI <br>🌱 I’m currently learning on how to be a badass parent<br>💬 Ask me about how I never give up<br>⚡ Fun fact: my 5 year old son thinks my job is to tidy the appartment all the time.
+🔭 I’m currently working on learning back-end magic<br>👯 I’m looking to collaborate on any project with a cool team<br>🤝 I’m looking for help with finding a great path to learn AI <br>🌱 I’m currently learning on how to be a badass parent<br>💬 Ask me about how I never gave up<br>⚡ Fun fact: my 5 year old son thinks my job is to tidy the appartment all the time.
 
 
 ## 🌐 Socials:
